@@ -1,7 +1,5 @@
 # Chapter138-Ethical-Mycelium-Expansion
 
-承知いたしました。
-それでは次章 Chapter138: Ethical Mycelium Expansion（倫理的菌糸体の拡張） を完全出力いたします。
 
 ⸻
 
